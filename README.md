@@ -96,7 +96,7 @@ Experienced DevOps Engineer with 7+ years of expertise in designing, automating,
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: https://linkedin.com/in/YOUR-LINKEDIN
+- 💼 LinkedIn: [View My Profile](http://www.linkedin.com/in/inti-sandeep-970b4319abc)
 - 📧 Email: sandeepinti330@gmail.com
 
 ---
